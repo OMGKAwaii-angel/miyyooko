@@ -1,1 +1,1 @@
-*worldstars idol zomi ✧ any prns no he/its (you can also call me by cat/cats !!)*
+*worldstars idol zomi ✧ im gonna block/hide you if you call me by he/him & it/its im not kidding
